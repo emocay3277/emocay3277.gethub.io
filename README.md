@@ -1,1 +1,3 @@
-# emocay3277.github.io
+my portfolio (or for short... about me and my life,
+english is to complicated)
+this is basicly about me and my life, nothing much tho...
